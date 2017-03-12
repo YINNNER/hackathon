@@ -1,1 +1,1 @@
-# Yiner is really silly.
+# Zang is really silly.
